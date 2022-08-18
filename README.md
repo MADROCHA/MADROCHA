@@ -1,5 +1,16 @@
 ### Hi there 👋
-
+          
+   ![Png_400%Sprite-0 8_cvMad](https://user-images.githubusercontent.com/100350587/185409663-434a5c30-fc98-47c8-a600-24ff9bf0efe3.png)
+   
+ 
+### CONTACT
+   📫
+    email - madlarocha@gmail.com
+  
+    💬 Discord - MadLink43#5678
+    
+    ⚡ I’m currently open to comissions
+   
 <!--
 **MADROCHA/MADROCHA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
