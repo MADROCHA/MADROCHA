@@ -9,11 +9,11 @@
   
     💬 Discord - MadLink43#5678
     
-    ⚡ I’m currently open to comissions
+
    
 <!--
 **MADROCHA/MADROCHA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+ I’m currently open to comissions
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
