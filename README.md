@@ -3,11 +3,7 @@
    ![Png_400%Sprite-0 8_cvMad](https://user-images.githubusercontent.com/100350587/185409663-434a5c30-fc98-47c8-a600-24ff9bf0efe3.png)
    
  
-### CONTACT
-   📫
-    email - madlarocha@gmail.com
-  
-    💬 Discord - MadLink43#5678
+
     
 
    
